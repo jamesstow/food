@@ -42,3 +42,4 @@ existing recipes found as inspiration
 http://www.bbc.co.uk/food/recipes/pork_belly_with_lentils_06680
 http://www.epicurious.com/recipes/food/views/endive-apple-and-celery-salad-with-smoked-almonds-and-cheddar
 https://www.bbcgoodfood.com/recipes/7695/cheese-and-onion-pork-chops 
+https://www.chefsteps.com/activities/fat-duck-inspired-ultimate-pork-belly--2
