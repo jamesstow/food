@@ -9,11 +9,12 @@ puy lentils
 
 * should be the absolute selling point of the dish, bridge rich mouthfeel of pork and its fat with the density and feel of puy lentis
 
-celery - raw / blanched - unsure yet however i feel this may be another main part of the dish - the freshness required in the rich fat maelstrom
+components / additives
 
-smoked almonds? - would need to wash the salt off, too strong. however i think almonds may really add something
-caperberrys? - maybe the vinegar is too much, though the cheese caperberry almond trio is super strong.
-sharp cheddar? it could conflicts too much and tries to take centre stage, if used it should be a miniscule amount diced super fine ~2-4mm
+- celery - raw / blanched - unsure yet however i feel this may be another main part of the dish - the freshness required in the rich fat maelstrom
+- smoked almonds? - would need to wash the salt off, too strong. however i think almonds may really add something
+- caperberrys? - maybe the vinegar is too much, though the cheese caperberry almond trio is super strong.
+- sharp cheddar? it could conflicts too much and tries to take centre stage, if used it should be a miniscule amount diced super fine ~2-4mm
 
 sauce:
 
